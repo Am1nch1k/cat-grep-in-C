@@ -1,0 +1,13 @@
+tut21
+qummmm1
+qweq
+memememe
+popopopop
+{}{}{}{}
+[][][][
++__+
+00031491
+YuYuY
+TuT
+QUMMMMMMMM
+pepepepepepe

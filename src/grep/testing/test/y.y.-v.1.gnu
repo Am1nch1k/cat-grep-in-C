@@ -1,0 +1,12 @@
+YOY
+YUY
+YAY
+YEY
+beb
+bob
+BEB
+BOB
+bib
+bepeb
+123354
+BIB
